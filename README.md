@@ -1,0 +1,2 @@
+# teleidyspimentel
+Tecnología Emergente
